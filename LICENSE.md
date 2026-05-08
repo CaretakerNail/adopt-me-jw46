@@ -1,4 +1,4 @@
-
+adopt me stealth Scripts is the best adopt me Script, featuring auto-sell and one-hit kill. Safe and powerful for all your needs.
 
 
 
